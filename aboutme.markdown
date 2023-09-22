@@ -1,1 +1,2 @@
-I am from New Delhi
+- I born on May 25th 1996 in New Delhi during summers.
+- I had done my schooling from St. Mary's School.
